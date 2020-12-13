@@ -52,5 +52,5 @@ ket : ✅ : aktif
 * [`termux-whatsapp-bot`](https://github.com/fdciabdul/termux-whatsapp-bot)
 
 ## DONASI
-* Gopay: 081271699856 
-</s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </ s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s>         </s> SEBUAH      </s> orang </s>
+* Gopay: 083852443148 
+</s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </ s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s>                   </s> SEBUAH                </s> orang </s>
